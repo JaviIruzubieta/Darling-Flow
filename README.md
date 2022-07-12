@@ -1,1 +1,1 @@
-Efficiency gain tools 👌
+Efficiency gain tools
